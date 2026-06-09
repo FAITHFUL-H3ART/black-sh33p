@@ -3,47 +3,9 @@
 
 <div align="center">
 
-ᡕᠵデᡁ᠊╾━
+<sub>![](https://komarev.com/ghpvc/?username=FAITHFUL-H3ART&label=GIFTS+I+MADE&color=ff7676&style=plastic)</sub>
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fredoka&weight=600&letterSpacing=Center&duration=4000&pause=1600&color=FFF69B&center=true&width=445&height=40&lines=Bobette+Carolynne+.;%22+Happy+Holidays+!+%22;%22+Packaged+with+care+!+%22;%22+I+feel+so+festive+!+%22;%22+Aha+!+Got+it+.+%22;%22+We'll+make+the+Perfect+Christmas+!+%22)](https://git.io/typing-svg)
 
 
-
-
-  <sub>![](https://komarev.com/ghpvc/?username=black-sh33p&label=Chocolates&color=3e5945&style=plastic)</sub>
-
-
-
-𖤝
-
- ᵈᵃᵏᵃʳᵃ ᵒⁿᵉ ᵗʷᵒ ᵗʰʳᵉᵉ ᵈᵉ ᵃʳᵘᵏⁱᵈᵃˢᵉ 
-
-Ӏվɾìçʂ
-
-ㅤ ׅ 𝄂𝄚𝅦𝄚𝄞𝅄
-ㅤ
-
-Hello my name is Lilly, Sheep or Cosmo gen just call me anything atp —
-
-Im not a good person to interact first unless i am with my friends though i sometimes do
-
-✚   ✚   ✚
-
-Im mostly at the dandys world area around the market sometimes the hetalia area and spawn
-
-⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘
-
-<img width="498" height="280" alt="E1B7ACDF-19F7-4A35-9C7F-594E15B52937" src="https://files.catbox.moe/mqorjh.gif" />
-
-ᴰᵒⁿᵗ ᵐⁱⁿᵈ ⁱᵗ ⁱᶠ ᵗʰᵉ ʳᵉᵃᵈᵐᵉ ⁱˢ ᵘᵍˡʸʸʸ ᵗʰⁱˢ ⁱˢ ᵐʸ ᶠⁱʳˢᵗ ᵗⁱᵐᵉ ᵐᵃᵏⁱⁿᵍ ᵐʸ ᵒʷⁿ ᵃⁿᵈ ⁱᵈᵏ ʰᵒʷ ᵗᵒ ᶜᵒᵈᵉ
-
-
-▄︻デ══━一
-
-💥💥💥
-
-
-
-
-
-
-
-
+<img width="2048" height="2048" alt="Untitled12_20260515143702" src="https://github.com/user-attachments/assets/947d7a73-6453-45bd-a5e1-39758bf18026" />
